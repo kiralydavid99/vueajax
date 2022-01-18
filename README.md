@@ -1,4 +1,4 @@
-# [Név]
+# [Király Dávid]
 
 ## Hogyan kezdj neki?
 
